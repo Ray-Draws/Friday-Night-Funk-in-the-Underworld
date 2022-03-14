@@ -1,8 +1,8 @@
 # Friday-Night-Funk-in-the-Underworld
-Funk it up
+A mod concept that will probably never see the light of day featuring characters from a old webcomic series I had
 
 
-hi I literally dont know how this site works
+hi I literally dont know how to code
 
 Week 1 - Club 13 (vs. J'onte)
 
